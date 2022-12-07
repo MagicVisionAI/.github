@@ -1,0 +1,1 @@
+Magic Vision is a technology driven company inspired by the latest computer vision applications. Our goal is to bring this technology within reach of every business, by working with you on developing tailor made solutions for your needs.
