@@ -1,1 +1,0 @@
-# MAGIC VISION AI
